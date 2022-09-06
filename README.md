@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Pikachu
+- 👋 Hi, I’m Yupenghe
 - 👀 I’m interested in biochemistry and pharmaceutical sciences.
 - 🌱 I’m currently a Pharmaceutical Sciences Program master student.
 
